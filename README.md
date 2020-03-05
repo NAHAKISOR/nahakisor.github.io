@@ -1,1 +1,1 @@
-"# quest_naha.github.io" 
+Website created for Quest 2020. It is an inter-school event which unites all the schools in and around madurai. It consist of more than 35 events. The total number of students participating are estimated to be around 2500.
